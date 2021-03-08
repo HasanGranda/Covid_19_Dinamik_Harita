@@ -1,0 +1,1 @@
+# Covid_19_Dinamik_Harita
